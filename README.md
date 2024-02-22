@@ -1,1 +1,1 @@
-# osoc_season1_Kanyshuly_Idris
+This is the repository of Kanyshuly Idris for a project - "One Student One Chip"
