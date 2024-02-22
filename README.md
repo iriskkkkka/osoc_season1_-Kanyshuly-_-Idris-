@@ -1,1 +1,1 @@
-# osoc_season1_-Kanyshuly-_-Idris-
+# osoc_season1_Kanyshuly_Idris
