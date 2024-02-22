@@ -1,0 +1,1 @@
+# osoc_season1_-Kanyshuly-_-Idris-
